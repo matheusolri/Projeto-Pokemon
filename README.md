@@ -1,1 +1,1 @@
-## Segue algumas imagens do resultado
+## Segue algumas imagens do resultado:
